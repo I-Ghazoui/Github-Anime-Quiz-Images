@@ -1,1 +1,0 @@
-# Github-Anime-Quiz-Images
